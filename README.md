@@ -1,1 +1,0 @@
-# actividad clase 2
